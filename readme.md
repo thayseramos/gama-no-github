@@ -1,0 +1,1 @@
+O curso está sendo muito bom e, apesar do meu atraso, estou bastante empolgada e tentando acompanhar tudo!
